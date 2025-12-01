@@ -1,0 +1,61 @@
+- Meditation
+
+  - Anxiety Relief
+    - Whispered Anxiety Release
+    - Slow the Storm (New added, middle-aged male with deep slow voice)
+    - Breathing Space Reset (New added, young adult female with calm soft tone)
+    - When Thoughts Feel Too Loud (New added, gentle older woman with warm steady voice)
+  - Mindfulness
+    - Present Moment Anchor (New added, young male with soothing clean voice)
+    - Noticing Without Judgement (New added, middle-aged female with therapist-like tone)
+    - Gentle Awareness Scan (New added, soft-spoken Asian female with peaceful whisper)
+  - Stress Reset
+    - Drop the Weight You’re Carrying (New added, mature male with grounding low tone)
+    - Tension Melts Here (New added, young woman with airy slow voice)
+    - Return to Center (New added, senior male with calm grandfather energy)
+  - Visualization
+    - Safe Place Sanctuary (New added, middle-aged woman with warm storytelling tone)
+    - Warm Light Through the Body (New added, soft whisper male)
+    - Mountain of Quiet Strength (New added, elderly male with wise calm voice)
+  - Focus & Clarity
+    - Clear Mind, Sharp Vision (New added, young male narrator with crisp clarity)
+    - Laser Focus Reset (New added, soft female with light productivity tone)
+    - Mental Declutter Session (New added, gentle middle-aged woman)
+  - Habit-forming routines
+    - Build Your Morning Calm (New added, cheerful young female narrator)
+    - Evening Release Ritual (New added, older female whisper)
+    - Become Consistent Again (New added, supportive middle-aged male)
+
+- Listen
+
+  - Podcasts
+    - Science Behind Tracking Mood and Behavior
+    - Ignoring the Mind may lose your mind
+    - Stop burning your resources
+    - Nothing is wrong with you
+    - Our system doesn't trust sudden peace
+    - Why Anxiety Shows Up When Life Is “Fine” (New added, young male with psychologist tone)
+    - Rewiring Your Emotional Habits (New added, middle-aged female therapist voice)
+    - How to Feel Safe in Your Own Body Again (New added, older gentle woman with soft pace)
+
+- Sleep
+  - AMSR
+    - Ice eating
+    - Game boy AMSR
+    - Soft Page Turning (New added, soft-spoken female ASMR artist)
+    - Gentle Hair Brushing Loops (New added, whispering young female)
+    - Blanket Fluffing ASMR (New added, deep-whisper male)
+  - Whitenoises
+    - Campfire
+    - ForestBirds
+    - Rain
+    - Ocean Waves
+    - Deep Space Hum (New added, ambient no voice)
+    - Train Cabin at Night (New added, ambient no voice)
+    - Distant Thunder Comfort (New added, ambient no voice)
+  - Story
+    - Back to 1960s
+    - The Train Lady (Upgrade)
+    - The Lantern Keeper’s Secret (New added, elderly male storyteller)
+    - Across the Quiet Mountains (New added, middle-aged woman storyteller)
+    - The Forgotten Garden Path (New added, grandmother-like soft female narrator)
